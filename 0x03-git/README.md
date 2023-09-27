@@ -1,1 +1,1 @@
-Look man there is nothing here
+There is nothing to see here
